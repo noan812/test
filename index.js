@@ -1,1 +1,1 @@
-hello galaxy
+hello earth citizens
